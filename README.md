@@ -1,4 +1,5 @@
-# ZORD_TEAMS-V4
+# ZORD_TEAMS-V4 ULTIMATE
+https://files.catbox.moe/owu5vg.jpg
    <a><img src='C:\Users\CYRAX\Desktop\WINDOWS TOOLKIT\PANEL-BUGGING\completed bugs\STINGER-V7\database\image\STINGER-V7.jpg'/></a>
 <p align="center">
 <p align="center">
